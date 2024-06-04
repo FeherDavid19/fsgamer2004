@@ -1,2 +1,2 @@
 # fsgamer2004
-en vagyok a tulaj
+legkomolyabb fs gamer
